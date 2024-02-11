@@ -11,9 +11,7 @@
 
 👩‍💻 We post resources often, these will help you with understanding the rules of any competition
 
-🍿 Fun facts - what does your team eat for breakfast?
-
-🧙 Remember, you can do mighty things with the power of [Markdown]
+🍿 Fun facts - fuckyou<3
 
 **❤️ Fuckyou <3**
 
