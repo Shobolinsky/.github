@@ -13,5 +13,5 @@
 
 🍿 Fun facts - fuckyou<3
 
-**❤️ Fuckyou <3**
+**❤️ If you can read this, Fuckyou <3**
 
