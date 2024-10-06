@@ -1,6 +1,6 @@
 ## Hi there 👋
 * Who is Shobolinsky?🤨
-* 
+
 Just a bunch of nerds building awesome robots 🤖💡 | Racing to the future, one wire at a time! 🚀
 
 Shobolinsky was born at the end of 2021, when two high school friends decided to turn their wild ideas into reality. Fast forward, and now we’re a team with multiple hackathon wins 🏆, crushing national and international competitions like it's just another Tuesday. We thrive on innovation, always pushing boundaries with fresh, out-of-the-box ideas (sometimes literally out of the box because, you know, we ran out of parts). Stress? What’s that? We’re too busy having fun 😎.
