@@ -11,5 +11,5 @@ The Short Story:
 We kicked things off building combat robots that looked like rats 🐀. Why rats? Well, they were made from aluminum "L" profiles because, let’s be honest, we were broke 💸. This gave our bots a ratty charm that we’ve kept with each new version—and now, it's kind of our signature style!
 
 
-**❤️ If you can read this, Fuckyou <3**
+**❤️**
 
